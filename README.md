@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @spyware26
+- 👀 I’m interested in Android Modding
+- 🌱 I’m currently learning Hardware & Networking
+- 📫 Telegram @spyware26
